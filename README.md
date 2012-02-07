@@ -1,5 +1,5 @@
 Interested in coming to the hackathon?
-Awesome.
+Awesome!
 
 Here&rsquo;s how to get on the list:
 
